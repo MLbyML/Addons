@@ -12,4 +12,12 @@ comments: true
 >"'Tormalin the Oathless', she spat, taking a step away from him. 'That's what they called you, because you were feckless and a layabout, and I thought, how dare they call my brother so? Even in jest. But they were right. You care about nothing but yourself, Oathless one.'"
 
 
+I liked how the back story is provided through letters by Lady Vintage in the start of each chapter. This eliminates the need for a narrator.
+
+> "`You really study these things?' In the dim light the witch's face looked really dirty, with its traces of ash. `What for? I mean really what for?'
+
+`For the joy of knowing, of course!' She patted the girl's arm. `It helps to understand things, don't you think? It makes them less alarming.'
+
+Noon looked unconvinced. `Things are less *alarming* when you put a lot of space between you and them. Hiding is easier.'" 
+
 
