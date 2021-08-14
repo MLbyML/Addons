@@ -18,4 +18,6 @@ I liked how the back story is provided through letters by Lady Vintage in the st
 "For the joy of knowing, of course!" She patted the girl's arm. "It helps to understand things, don't you think? It makes them less alarming."
 Noon looked unconvinced. "Things are less *alarming* when you put a lot of space between you and them. Hiding is easier."
 
+The author's use of similes and color to evoke images in the mind of the reader are quite breathtaking:
+
 
