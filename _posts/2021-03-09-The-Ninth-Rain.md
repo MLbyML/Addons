@@ -20,4 +20,5 @@ Noon looked unconvinced. "Things are less *alarming* when you put a lot of space
 
 The author's use of similes and color to evoke images in the mind of the reader are quite breathtaking:
 
+>His words were quiet, but both parasite spirits turned to regard him, lights spinning in their flesh like the stars after one too many glasses of wine."
 
