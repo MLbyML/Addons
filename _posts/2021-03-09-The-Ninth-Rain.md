@@ -28,12 +28,14 @@ Her use of colors to paint an image is also fantastic:
 
 > The moonlight had turned Bern's golden hair silver, and, standing on the summit of the small hill, he looked to Aldasair like some sort of unlikely statue.
 
-> The glass roof was full of lilac ligt, as night shaded into day.
+> The glass roof was full of lilac light, as night shaded into day.
 
 It is interesting to see how the author ends any chapter. It looks like it is a thought - narrative - thought scheme.
 
 >'I - Lord, I am honored.' There were so many questions, but Hestillion forced them all from her mind. They had clearly done something to lose Ygseril's trust. It was now her responsibility to win it back. 'Whatever you wish of me.'
+>
 The light did fade then, but Hestillion felt a warmth from it that she hadn't felt before, and she knew that in some form Ygseril had expressed his approval. Fighting back up through the netherdark, she awoke stiff and cold, crouched on the roots.
+>
 'My responsibility,' she said, stroking the twisted bark. 'My responsibility, alone'.
 
 
