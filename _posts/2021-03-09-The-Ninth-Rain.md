@@ -38,5 +38,6 @@ The light did fade then, but Hestillion felt a warmth from it that she hadn't fe
 >
 'My responsibility,' she said, stroking the twisted bark. 'My responsibility, alone'.
 
+Some sentences are pure works of art.
 
- 
+>'Hest? Hest, it's me.' He shouted across the hall, too aware of how his words were eaten up by the space between them. 
