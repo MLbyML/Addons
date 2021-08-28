@@ -14,7 +14,7 @@ comments: true
 
 The sentences seem a bit too long to read. But the content has some interesting science-rooted ideas. Another one, for example, is:
 
->Alongside the Barrel was the Flask: the delivery system for the virus that would accelerate the monkeys along their way - they would stride, in a mere century of two, across physical and mental distances that had taken humanity millions of long and hostile years
+>Alongside the Barrel was the Flask: the delivery system for the virus that would accelerate the monkeys along their way - they would stride, in a mere century or two, across physical and mental distances that had taken humanity millions of long and hostile years
 
 
 
